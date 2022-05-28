@@ -130,6 +130,6 @@
 别把人世当故乡
 得法回天你已盼的太久太长
 
-原文 https://www.minghui.org/mh/articles/2022/5/28/九十岁老人得福报-444181.html
+原文 https://www.zhengjian.org/node/275935
 
 ## [返回主頁](https://git.io/Js3EY)
